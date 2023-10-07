@@ -1,6 +1,6 @@
 - Kosher salt
 - 1pound spaghetti, linguine or other long noodle
-- 8tablespoons unsalted butter
+- 8 tablespoons unsalted butter
 - 1cup freshly grated Parmesan, plus more for serving
 - Freshly ground black pepper
 ## PREPARATION
