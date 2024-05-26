@@ -12,3 +12,6 @@
 - Whisk in the garlic, Italian seasoning, salt, and pepper for one minute.
 - Whisk in the parmesan cheese until melted.
 - Serve immediately.
+
+Citation:
+https://thesaltymarshmallow.com/best-homemade-alfredo-sauce/
