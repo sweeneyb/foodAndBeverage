@@ -1,4 +1,4 @@
-cotes de bougous
+scotes de bougous
 david trucel
 
 marcel lapierre (morgon camille)
